@@ -43,19 +43,19 @@ Place the two slices of bread together with the peanut butter and jelly sides fa
 
 ## Tips for the Best PB&J
 
--   Use **toasted bread** for extra crunch.\
--   Try adding banana slices for a *fun twist*.\
+-   Use **toasted bread** for extra crunch.
+-   Try adding banana slices for a *fun twist*.
 -   Experiment with almond butter or different jams.
 
 ------------------------------------------------------------------------
 
 ## See also
 
--   [History of the PB&J Sandwich](https://nationalpeanutboard.org/news/who-invented-the-peanut-butter-and-jelly-sandwich/)\
+-   [History of the PB&J Sandwich](https://nationalpeanutboard.org/news/who-invented-the-peanut-butter-and-jelly-sandwich/)
 -   [15 Unique Ways to Upgrade Your PB&J](https://potatorolls.com/blog/15-pbj-variations/)
 
 ## References
 
-1.  "The Ultimate PB&J Guide," FunSnack.com.\
-2.  "Peanut Butter: A History," Foodies Weekly.\
+1.  "The Ultimate PB&J Guide," FunSnack.com.
+2.  "Peanut Butter: A History," Foodies Weekly.
 3.  "Jelly: Sweet and Spreadable," JellyMasters.org.
